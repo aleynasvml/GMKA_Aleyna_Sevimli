@@ -1,0 +1,1 @@
+# GMKA_Aleyna_Sevimli
